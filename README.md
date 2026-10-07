@@ -1,0 +1,2 @@
+# premium-quoin-corner-001-quoin-corner-ashlar-dress-st
+Tired of scattered notes and fragmented references while designing quoin corners and ashlar dress stone patterns? The Quoin Corner &amp; Ashlar Dress Stone Craft Lab brings your entire masonry design process into one organized, visual Notion workspace.  This template eliminates the chaos of managing stone specifications, pattern layouts, and craft tech
